@@ -23,3 +23,5 @@ Using this as an archive of interesting and thought-provoking content I come acr
 > I'm sure most the intention of those who are in favour of higher levels of economic equality is to help the poor, instead of hurting the rich. Some may also argue that social mobility comes from economic inequality. Many hopes that by attacking wealth, they will achieve a reduction in poverty. However, poverty and economic inequality are not synonyms. You can very much reduce the wealth of the richest and have it not help those in poverty at all.
 >
 > If there are people getting rich by tricking consumers, lobbying for tax loopholes and anti-competitive regulations, we should stop them. Not because this is causing economic inequality, but because this is blatant stealing.
+>
+> Written: 25th June 2022
