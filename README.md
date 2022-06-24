@@ -24,6 +24,6 @@ Using this as an archive of interesting and thought-provoking content I come acr
 >
 > If there are people getting rich by tricking consumers, lobbying for tax loopholes and anti-competitive regulations, we should stop them. Not because this is causing economic inequality, but because this is blatant stealing.
 >
-> The desire to fix the world is nobel. But in order to achieve that goal, one has to understand the world through a scientific lense and focus their efforts on where it will do the most good.
+> The desire to fix the world is noble. But in order to achieve that goal, one has to first understand the world, then focus their efforts on where it will do the most good.
 >
 > Written: 25th June 2022
