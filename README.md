@@ -2,7 +2,7 @@
 
 Using this as an archive of interesting and thought-provoking content I come across. A fair amount of content here is derived through inspiration from other authors and I do not take credit for what I will be posting here. Always open to discuss and debate on these ideas.
 
-#### B
+#### 
 >
 
 
