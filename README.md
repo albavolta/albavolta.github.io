@@ -1,4 +1,4 @@
-# Work in progress kind of site
+# Idea Archive
 
 Using this as an archive of interesting and thought-provoking content I come across.
 
