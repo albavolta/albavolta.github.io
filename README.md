@@ -4,7 +4,7 @@ Using this as an archive of interesting and thought-provoking content I come acr
 
 
 #### On Economic Inequality
-> As economic inequality increases throughout the world and the rich become richer, many have the concern that the world is broken because of this phenomenon.
+> As economic inequality increases throughout the world and the rich become richer, many have the concern that the world is broken.
 >
 > Economic Inequality is fundamentally complex, and treating it like the pie fallacy whereby - the rich gets richer by taking money from the poor, is an inaccurate and simplistic manner of thinking. The reality is that in a lot of instances, you can create wealth at the same time while taking it from others.
 >
