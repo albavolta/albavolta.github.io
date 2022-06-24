@@ -10,4 +10,4 @@ Using this as an archival of interesting and thought-provoking content I come ac
 and what does this do
 </div>
 
-|what about this, make it work this time|
+| what about this, make it work this time |
