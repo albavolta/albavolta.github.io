@@ -15,3 +15,14 @@ and what does this do
 
 |finally it worked, bunch of text bunch of text|
 |---|
+
+
+didnt work so im trying this instead
+
+```
+{
+  "firstName": "John",
+  "lastName": "Smith",
+  "age": 25
+}
+```
