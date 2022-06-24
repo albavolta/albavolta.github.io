@@ -1,9 +1,11 @@
 # Idea Archive
 
-Using this as an archive of interesting and thought-provoking content I come across.
+Using this as an archive of interesting and thought-provoking content I come across. A fair amount of content here is derived through other authors and I do not take credit for what I will be posting here. Always open to discuss and debate on the writings.
 
 
 #### On Economic Inequality
+> As economic inequality increases throughout the world and the rich become richer, many have the concern that the world is broken because of this phenomenon.
+>
 > Economic Inequality is fundamentally complex, and treating it like the pie fallacy whereby - the rich gets richer by taking money from the poor, is an inaccurate and simplistic manner of thinking. The reality is that in a lot of instances, you can create wealth at the same time while taking it from others.
 >
 > While it is a fact that many people have gotten rich through rent-seeking and playing zero sum games, there is also a significant number of people who get rich through the creation of wealth.
