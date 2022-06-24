@@ -4,7 +4,7 @@ Using this as an archive of interesting and thought-provoking content I come acr
 
 
 #### On Economic Inequality
-> Economic Inequality is fundamentally complex, and treating it like the pie fallacy whereby - the rich gets richer by taking money from the poor, is a naive point of view. The reality is that in a lot of instances, you can create wealth at the same time while taking it from others.
+> Economic Inequality is fundamentally complex, and treating it like the pie fallacy whereby - the rich gets richer by taking money from the poor, is an inaccurate and simplistic manner of thinking. The reality is that in a lot of instances, you can create wealth at the same time while taking it from others.
 >
 > While it is a fact that many people have gotten rich through rent-seeking and playing zero sum games, there is also a significant number of people who get rich through the creation of wealth.
 >
