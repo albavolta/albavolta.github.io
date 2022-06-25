@@ -1,4 +1,4 @@
-Using this as an archive of interesting and thought-provoking content I come across. A fair amount of content here is derived through inspiration from other authors, but repackaged into my own liking or original. I always appreciate constructive feedback and discussions on my content so feel free to hit me up.
+Using this as an archive of interesting and thought-provoking content I come across. A fair amount of content here is derived through inspiration from other authors, but repackaged into my own liking. I always appreciate constructive feedback and discussions on my content so feel free to hit me up.
 
 #### Roe v. Wade
 > The United States should no longer consider itself a free country. Today the US Supreme Court has overturned Roe v. Wade, the landmark 1973 decision that established the constitutional right to an abortion. In addition, Supreme Court Justice Clarence Thomas has also stated that gay rights and contraception rulings should be 'reconsidered'.
