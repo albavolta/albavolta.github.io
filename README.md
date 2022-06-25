@@ -5,9 +5,11 @@ Using this as an archive of interesting and thought-provoking content I come acr
 >
 > This means that even if a woman gets assaulted, or even if a child somehow gets pregnant, there is the possibility that if they are in one of the states that have made abortion illegal, they would get punished by the law if they get caught performing an abortion. In fact, it has been less than a day since the ruling passed and 13 states have already made abortion illegal. Women right now are coming into abortion clinics finding out that they can no longer exercise their authonomy over their bodies.
 >
-> I'm certain that this law does not mean that abortions will no longer happen, but that there would not be a safe avenue for women to exert autonomy over their own reproductive organs. Abortions will still happen, just that it will happen in unsafe environments, in the dark instead of with trusted professions in proper santised facilities.
+> I'm certain that this law does not mean that abortions will no longer happen, but that there would not be any safe avenues for women to exert autonomy over their own reproductive organs. Abortions will definitely still happen, but it will happen in unsafe environments, in the dark instead of with trusted professionals in proper santised facilities.
 >
-> The people of the United States need to come together to not just make social media posts and attend protests, but aggressively fight for their rights. I personally believe that women in the United States should go into an era of total celibacy as a strong act of protest. Because this is clearly a *war waged against women*, and I really do not want to see these atrocious people to win.
+> The people of the United States need to come together to not just make social media posts and attend protests, but much more aggressively fight for their rights. In fact I suggest that women in the United States can consider going into an era of total celibacy as a strong act of protest.
+>
+>This is clearly a *war waged against women*, and I really do not want to see these atrocious people to win.
 >
 > Written: 26 June 2022
 
