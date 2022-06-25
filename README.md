@@ -1,5 +1,7 @@
 Using this as an archive of interesting and thought-provoking content I come across. A fair amount of content here is derived through inspiration from other authors and I do not take credit for everything I mention. I always appreciate constructive feedback and discussions on my content so feel free to hit me up.
 
+#### Greek Myth of Soulmates
+> “Humans were originally created with four arms, four legs and a head with two faces. Fearing their power, Zeus split them into two separate parts, condemning them to spend their lives in search of their other halves.” - Plato
 
 #### Why People Are Irrational About Politics
 > Perhaps the most striking feature of the study of politics is how prone it is to disagreement. Hours of arguments about political topics between people often lead nowhere, and certain political disputes have persisted for decades and multiple generations. This should strike us as odd, as most other fields are not subject to disagreements to such an extent; their disputes are far fewer in number and take place against a backdrop of substantial agreement in fundamental theory; and they tend to be more tentative and more easily resolved. 
