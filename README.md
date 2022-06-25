@@ -9,7 +9,7 @@ Using this as an archive of interesting and thought-provoking content I come acr
 >
 > The people of the United States need to come together to not just make social media posts and attend protests, but much more aggressively fight for their rights. In fact I suggest that women in the United States can consider going into an era of total celibacy as a strong act of protest.
 >
->This is clearly a *war waged against women*, and I really do not want to see these atrocious people to win.
+>This is clearly a *war waged against women*, don't let them win, it is a fight everyday.
 >
 > Written: 26 June 2022
 
