@@ -1,4 +1,5 @@
-Using this as an archive of interesting and thought-provoking content I come across.
+Using this as an archive of interesting and thought-provoking content I come across. A fair amount of content here is derived through inspiration from other authors and I do not take credit for everything I mention. I always appreciate constructive feedback and discussions on my content so feel free to hit me up!
+
 
 #### Why People Are Irrational About Politics
 > Perhaps the most striking feature of the study of politics is how prone it is to disagreement. Hours of arguments about political topics between people often lead nowhere, and certain political disputes have persisted for decades and multiple generations. This should strike us as odd, as most other fields are not subject to disagreements to such an extent; their disputes are far fewer in number and take place against a backdrop of substantial agreement in fundamental theory; and they tend to be more tentative and more easily resolved. 
@@ -35,4 +36,4 @@ Using this as an archive of interesting and thought-provoking content I come acr
 >
 > Written: 25th June 2022
 
-**About Me:** Currently a year 2 Economics undergraduate, my interests are broad and the scope of this blog reflects this eclecticness. While my primordial interest lies in economics and finance, I am equally fascinated by the various fields of social sciences and humanities. In my free time I enjoy immersing myself in artistic endeavours. A fair amount of content here is derived through inspiration from other authors and I do not take credit for everything I mention. I always appreciate constructive feedback and discussions on my content so feel free to hit me up!
+**About Me:** Currently a year 2 Economics undergraduate, my interests are broad and the scope of this blog reflects this eclecticness. While my primordial interest lies in economics and finance, I am equally fascinated by the various fields of social sciences and humanities. In my free time I enjoy immersing myself in artistic endeavours.
