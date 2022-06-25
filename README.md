@@ -7,7 +7,7 @@ Using this as an archive of interesting and thought-provoking content I come acr
 >
 > In fact, the Republican party only care about the 'child' (biologically speaking by definition they are not yet a human being) when they're are not born yet. We can see that historically the GOP have launched cultural attacks on Biden's plan for childcare fundings, education and family leave. Trump's policies have lead to family seperation at borders. Refusing to keep children safe from Covid-19 through blocking mask mandates. Resisting push for extended background checks after the recent mass shootings in schools. Clearly, 'children' only matter when they're not born yet.
 >
-> if abortion really was the issue the GOP had with women, contraception would have reduced it in a safe manner. Yet the very same party so strongly against abortion is trying to defund contraceptives and planned parenthood.
+> if abortion really was the issue the GOP had with women, contraception would have reduced it in a safe manner. Yet the very same party so strongly against abortion is trying to defund contraceptives and planned parenthood. Proving once again that what they are trying so hard to do isn't to 'protect life' but to take away the rights of women.
 >
 > I'm certain that this law does not mean that abortions will no longer happen, but that there would not be any safe avenues for women to exert autonomy over their own reproductive organs. Abortions will definitely still happen, but it will happen in unsafe environments, in the dark instead of with trusted professionals in proper santised facilities.
 >
