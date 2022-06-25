@@ -36,4 +36,4 @@ Using this as an archive of interesting and thought-provoking content I come acr
 > Written: 25th June 2022
 
 ##### About Me:
-Currently a year 2 Economics undergraduate, my interests are broad and the scope of this blog reflects this eclecticness. While my primordial interest lies in economics and finance, I am equally fascinated by various fields of social scineces and fine arts. I will always appreciate constructive feedback, discussions so feel free to hit me up!
+Currently a year 2 Economics undergraduate, my interests are broad and the scope of this blog reflects this eclecticness. While my primordial interest lies in economics and finance, I am equally fascinated by the various fields of social sciences and humanities. Including political science, sociology, history, and psychology. In my free time I enjoy immersing myself in the world of the fine arts. I will always appreciate constructive feedback, discussions on my content so feel free to hit me up!
