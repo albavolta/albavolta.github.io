@@ -1,4 +1,6 @@
-Using this as an archive of interesting and thought-provoking content I come across. A fair amount of content here is derived through inspiration from other authors and I do not take credit for everything I mention. I always appreciate constructive feedback and discussions on my content so feel free to hit me up.
+Using this as an archive of interesting and thought-provoking content I come across.
+
+A fair amount of content here is derived through inspiration from other authors and I do not take credit for everything I mention. I always appreciate constructive feedback and discussions on my content so feel free to hit me up.
 
 
 #### Why People Are Irrational About Politics
