@@ -1,5 +1,17 @@
 Using this as an archive of interesting and thought-provoking content I come across. A fair amount of content here is derived through inspiration from other authors and I do not take credit for everything I mention. I always appreciate constructive feedback and discussions on my content so feel free to hit me up.
 
+#### Roe v. Wade
+> The United States should no longer consider itself a free country.
+>
+> Today the US Supreme Court has overturned Roe v. Wade, the landmark 1973 decision that established the constitutional right to an abortion. I am absolutely disgusted and baffled at the state of the country. Supreme Court Justice Clarence Thomas has also stated that gay rights and contraception rulings should be 'reconsidered'.
+>
+> This means that even if a woman gets assaulted, or if a child somehow gets pregnant, there is the possibility that if you're in one of the states that have made abortion illegal, you would get punished by the law if you get caught performing an abortion.
+>
+> I'm certain that this law does not mean that abortions will no longer happen, but that there would not be a safe avenue for women to exert autonomy over their own reproductive organs. Abortions will still happen, just that it will happen in unsafe environments, in the dark.
+>
+> The people of the United States need to come together to not just make social media posts and attend protests, but actively fight for their rights. I personally believe that women should go into an era of total celibacy. Because this is clearly a war waged against women, and they should not allow these atrocious people to win.
+
+
 #### Greek Myth of Soulmates
 > “Humans were originally created with four arms, four legs and a head with two faces. Fearing their power, Zeus split them into two separate parts, condemning them to spend their lives in search of their other halves.” - Plato
 
