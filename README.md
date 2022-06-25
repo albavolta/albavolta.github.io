@@ -3,7 +3,7 @@ Using this as an archive of interesting and thought-provoking content I come acr
 #### Roe v. Wade
 > The United States should no longer consider itself a free country. Today the US Supreme Court has overturned Roe v. Wade, the landmark 1973 decision that established the constitutional right to an abortion. In addition, Supreme Court Justice Clarence Thomas has also stated that gay rights and contraception rulings should be 'reconsidered'.
 >
-> This means that even if a woman gets assaulted, or even if a child somehow gets pregnant, there is the possibility that if they are in one of the states that have made abortion illegal, they would get punished by the law if they get caught performing an abortion. In fact, it has been less than a day since the ruling passed and 13 states have already made abortion illegal. Women right now are coming into abortion clinics finding out that they can no longer exercise their authonomy over their bodies.
+> This means that even if a woman gets assaulted, or even if a child somehow gets pregnant, there is the possibility that if they are in one of the states that have made abortion illegal, they would get punished by the law if they get caught performing an abortion. In fact, it has been less than a day since the ruling passed and 13 states have already made abortion illegal. Women right now are coming into abortion clinics finding out that they can no longer exercise their autonomy over their bodies.
 >
 > I'm certain that this law does not mean that abortions will no longer happen, but that there would not be any safe avenues for women to exert autonomy over their own reproductive organs. Abortions will definitely still happen, but it will happen in unsafe environments, in the dark instead of with trusted professionals in proper santised facilities.
 >
@@ -36,9 +36,9 @@ Using this as an archive of interesting and thought-provoking content I come acr
 >
 > Eliminating variations in wealth would mean sacrifising innovation and productivity. It will also drive people with the desire to become rich out of the country into another space whereby there is a possibility to become rich. Which will definitely in turn affect the economic health of that particular country.
 >
-> So, as much as inequality suck, it is an inevitable fate of countries that don't choose something that is even worse off. We have seen how the supposed uptopian idea of 'equality' has worked out in the couple decades during the 20th century.
+> So, as much as inequality suck, it is an inevitable fate of countries that don't choose something that is even worse off. We have seen how the supposed utopian idea of 'equality' has worked out in the couple decades during the 20th century.
 >
-> "We may have democracy, or we may have wealth concentrated in the hands of a few, but we can't have both."  - Louis Brandeis
+> "We may have democracy, or we may have wealth concentrated in the hands of a few, but we can't have both." - Louis Brandeis
 >
 > You would not want to design your country in the manner that goes against the natural evolution of technology.
 >
@@ -52,4 +52,4 @@ Using this as an archive of interesting and thought-provoking content I come acr
 >
 > Written: 25th June 2022
 
-**About Me:** Currently a year 2 Economics undergraduate, my interests are broad and the scope of this blog reflects this eclecticness. While my primordial interest lies in economics and finance, I am equally fascinated by the various fields of social sciences and humanities. In my free time I enjoy immersing myself in artistic endeavours like film appreciation and dance.
+**About Me:** Currently a year 2 Economics undergraduate, my interests are broad and the scope of this blog reflects this eclecticism. While my primordial interest lies in economics and finance, I am equally fascinated by the various fields of social sciences and humanities. In my free time I enjoy immersing myself in artistic endeavours like film appreciation and dance.
