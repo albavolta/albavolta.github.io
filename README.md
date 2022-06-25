@@ -6,7 +6,7 @@ Using this as an archive of interesting and thought-provoking content I come acr
 > 
 > Political issues are fundamentally normative; they concern what people should and should not do. It is likely that political disputes persist because people start from different fundamental values, and they reason from those differing values to divergent political conclusions.
 >
-> To be continued..
+> [incomplete] To be continued..
 
 
 #### On Economic Inequality
