@@ -4,7 +4,7 @@ Using this as an archive of interesting and thought-provoking content I come acr
 #### Why People Are Irrational About Politics
 > Perhaps the most striking feature of the study of politics is how prone it is to disagreement. Hours of arguments about political topics between people often lead nowhere, and certain political disputes have persisted for decades and multiple generations. This should strike us as odd, as most other fields are not subject to disagreements to such an extent; their disputes are far fewer in number and take place against a backdrop of substantial agreement in fundamental theory; and they tend to be more tentative and more easily resolved. 
 > 
-> Political issues are fundamentally normative; they concern what people should and should not do. It is likely that political disputes persist because people start from different fundamental values, and they reason from those differing values to divergent political conclusions.
+> Political irrationality is the greatest social problem humans face. A greater problem than crime, drug addiction, war and poverty. Because it is a problem that prevents other problems from being solved. For instance, before one can address the problems of poverty, one must first have an objective understanding of poverty; what causes it, what reduces it, and what effects various policies can have.
 >
 > [incomplete] To be continued..
 
