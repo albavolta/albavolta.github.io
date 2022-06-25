@@ -7,7 +7,7 @@ Using this as an archive of interesting and thought-provoking content I come acr
 >
 > I'm certain that this law does not mean that abortions will no longer happen, but that there would not be a safe avenue for women to exert autonomy over their own reproductive organs. Abortions will still happen, just that it will happen in unsafe environments, in the dark instead of with trusted professions in proper santised facilities.
 >
-> The people of the United States need to come together to not just make social media posts and attend protests, but aggressively fight for their rights. I personally believe that women in the United States should go into an era of total celibacy as a strong act of protest. Because this is clearly a *war waged against women*, and I do not want to see these atrocious people to win.
+> The people of the United States need to come together to not just make social media posts and attend protests, but aggressively fight for their rights. I personally believe that women in the United States should go into an era of total celibacy as a strong act of protest. Because this is clearly a *war waged against women*, and I really do not want to see these atrocious people to win.
 >
 > Written: 26 June 2022
 
