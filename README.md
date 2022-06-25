@@ -1,5 +1,4 @@
-title: [Idea Archive]
-description: [A short description of your site's purpose]
+
 
 # Idea Archive
 
