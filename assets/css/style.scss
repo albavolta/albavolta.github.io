@@ -2,6 +2,9 @@
 ---
 
 @import "{{ site.theme }}";
-.markdown-body {
-  font-family: 'Times New Roman', Times, serif;
+
+body {
+      font-family: "Times New Roman", Times, serif;
 }
+
+$base-font-size:   12px !default;
