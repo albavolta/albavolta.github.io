@@ -34,3 +34,6 @@ Using this as an archive of interesting and thought-provoking content I come acr
 > The desire to fix the world is noble. But in order to achieve that goal, one has to first understand the world, then focus their efforts on where it will do the most good.
 >
 > Written: 25th June 2022
+
+##### About Me:
+Currently a year 2 Economics undergraduate, my interests are broad and the scope of this blog reflects this eclecticness. While my primordial interest lies in economics and finance, I am equally fascinated by various fields of social scineces and fine arts. I will always appreciate constructive feedback, discussions so feel free to hit me up!
