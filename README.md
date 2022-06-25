@@ -1,9 +1,7 @@
 Using this as an archive of interesting and thought-provoking content I come across. A fair amount of content here is derived through inspiration from other authors and I do not take credit for everything I mention. I always appreciate constructive feedback and discussions on my content so feel free to hit me up.
 
 #### Roe v. Wade
-> The United States should no longer consider itself a free country.
->
-> Today the US Supreme Court has overturned Roe v. Wade, the landmark 1973 decision that established the constitutional right to an abortion. In addition, Supreme Court Justice Clarence Thomas has also stated that gay rights and contraception rulings should be 'reconsidered'.
+> The United States should no longer consider itself a free country. Today the US Supreme Court has overturned Roe v. Wade, the landmark 1973 decision that established the constitutional right to an abortion. In addition, Supreme Court Justice Clarence Thomas has also stated that gay rights and contraception rulings should be 'reconsidered'.
 >
 > This means that even if a woman gets assaulted, or even if a child somehow gets pregnant, there is the possibility that if they are in one of the states that have made abortion illegal, they would get punished by the law if they get caught performing an abortion.
 >
