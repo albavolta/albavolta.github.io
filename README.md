@@ -11,7 +11,7 @@ Using this as an archive of interesting and thought-provoking content I come acr
 >
 > I'm certain that this law does not mean that abortions will no longer happen, but that there would not be any safe avenues for women to exert autonomy over their own reproductive organs. Abortions will definitely still happen, but it will happen in unsafe environments, in the dark instead of with trusted professionals in proper santised facilities.
 >
-> The people of the United States need to come together to not just make social media posts and attend protests, but much more aggressively fight for their rights. Don't let them win this war waged against women.
+> The people of the United States need to come together to not just make social media posts and attend protests, but in a much more aggressively manner fight for their rights. Don't let them win this war waged against women.
 >
 > Written: 26 June 2022
 
