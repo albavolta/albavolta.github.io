@@ -9,7 +9,7 @@ Using this as an archive of interesting content I come across. A fair amount of 
 >
 > Where Marx went wrong was how much he underestimated the ability of capitalism to increase the wealth of everyone through making products much cheaper. Since the 1980s, the number of people living in absolute poverty has fallen by about a billion. He was also wrong on the capacity of capitalism to reform itself through welfare and taxation.
 >
-> Though Marx had good ideas, his solution was far worse than the problem itself. Though it cannot be said that the state of today's economy, being dominated by immense inequality and financial crisises is triumpth. There is more work to do.
+> Though the state of today's economy, being dominated by immense inequality and financial crisises is nowhere near triumpth.  Marx's solution was far worse than the problem itself
 
 ##### Meme Quote
 > "We study the causal connection between adult literacy and murder rates using novel data from early atomic weapons testing."
