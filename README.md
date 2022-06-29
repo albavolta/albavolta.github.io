@@ -1,5 +1,16 @@
 Using this as an archive of interesting content I come across. A fair amount of content here is derived through inspiration from other authors, but repackaged into my own liking - I do not take credit for everything posted here. I always appreciate constructive feedback, corrections and discussions on my content so feel free to contact me.
 
+#### Karl Marx: A Summary
+> Often hailed as one of the greatest thinkers of the 19th Century, Karl Marx's writing has inspired revolutions and generated centuries worth of fierce political debate. Born in May 1818, Prussia (now Germany), Marx believed that capitalism, which was at its infancy at that time, had serious flaws. He becamed invovled in The Communist League London, the first Marxist political party, who desired to abolish class system and spread wealth equally. He wrote the Communist Manifesto in 1947 with Federick Engels, his benefactor, laying out a Marxist society where wealth is distributed equally.
+>
+> Marx was actually little known at the time, only after his death did his ideas flourish. Marxism became the inspiration for communism, which became a global movement. However the utopian idea of a fair and equal society did not materialise. Instead, communism tyrannised and improvished it's victims, slaughtering them in tens of millions. Today, capitalism is the main ideology that runs the world.
+>
+> Marx's criticism were not unfounded upon. Today, the global disparity between the rich and the poor is extremely startling. He was right on his prediction of growing wealth inequality, globalisation, that a handful of firm will dominate most of the market share in the world (Apple, Google, Amazon, Facebook etc), as well as boom and bust economics.
+>
+> Where Marx went wrong was how much he underestimated the ability of capitalism to increase the wealth of everyone through making products much cheaper. Since the 1980s, the number of people living in absolute poverty has fallen by about a billion. He was also wrong on the capacity of capitalism to reform itself through welfare and taxation.
+>
+> Though Marx had good ideas, his solution was far worse than the problem itself. Though it cannot be said that the state of today's economy, being dominated by immense inequality and financial crisises is triumpth. There is more work to do.
+
 ##### Meme Quote
 > "We study the causal connection between adult literacy and murder rates using novel data from early atomic weapons testing."
 
@@ -45,7 +56,7 @@ Using this as an archive of interesting content I come across. A fair amount of 
 > [incomplete] To be continued..
 
 
-#### On Economic Inequality
+#### The Case for Economic Inequality
 > As economic inequality increases throughout the world and the rich become richer, many have the concern that the world is broken.
 >
 > Economic Inequality is fundamentally complex, and treating it like the pie fallacy whereby - the rich gets richer by taking money from the poor, is an inaccurate and simplistic manner of thinking. The reality is that in a lot of instances, you can create wealth at the same time while taking it from others.
