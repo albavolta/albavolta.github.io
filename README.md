@@ -1,5 +1,8 @@
 Using this as an archive of interesting content I come across. A fair amount of content here is derived through inspiration from other authors, but repackaged into my own liking - I do not take credit for everything posted here. I always appreciate constructive feedback, corrections and discussions on my content so feel free to contact me.
 
+##### Meme Quote
+> "We study the causal connection between adult literacy and murder rates using novel data from early atomic weapons testing."
+
 #### Climate Change: An Economics Perspective
 > Just as how climate scientists are experts are analysing climate models, forcasting for future carbon emission and the likely effects on temperature, sea level rise and so forth. They are not at all experts at assessing the impacts of these metrics on scoiety. Just as climate scientists are much better able to answer questions such as "how much warming would the Earth experience over the next fifty years if there is this certain amount of carbon emission" - economists are much better able to answer questions that fall within the realm of "what will the societal and human consequences of 2 to 4 degree celcius of global warming be" than climate scientists.
 >
@@ -12,6 +15,10 @@ Using this as an archive of interesting content I come across. A fair amount of 
 > This is the conundrum of climate change. China with its power plants, air-conditioned cities, huge dams, subways, high speed trains, modern highways, air conditioned cars, and massive construction capability is vastly better equipped to confront climate change than a poor nation such as Bangladesh. Yet the path to those riches and security net lies through increased global warming. This forces us to ask whether it is better for a country like Bangladesh to accept increased warming and become rich or stay poor in an effort to fight global warming? Or more accurately it is for Bangladeshis to ask that question: why should we – who got rich creating the problem – have any voice in the matter? 
 >
 > There is a strong anti-climate change anti-growth movement in the rich countries of the world. However that may be, carbon output in rich countries is declining and will surely decline further. This is less likely to be the case in poor countries striving to be rich, as these countries have the most to gain from growth and the most to lose from global warming. It may be, as some people apparently believe, that green energy is actually cheaper than fossil fuels. In that case we have little to worry about: nobody rich or poor, Chinese, Bangladeshi, or Bulgarian is going to spend extra money for power merely to ruin the planet. 
+>
+> If the poor countries grow as China did by greatly increasing carbon emissions, we have the choice to either respect their decision, or attempt to coerce or bribe them into reducing carbon emissions. The recent controversy between the President of Brazil, Bolsonaro and the President of France, Macron, highlights this issue.
+>
+> The bottom line is: the best science indicates that if we do nothing the effect of global warming on our children will be modest and despite global warming our descendants will likely be considerably better off than we are. Moreover, the growth effect is so much stronger than the damage effect that this conclusion is robust to substantial errors in either the rate of warming or the level of economic damages.
 >
 > [incomplete, continuing later]
 
